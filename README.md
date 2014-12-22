@@ -35,9 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The honour of Christian churches and the necessitie of frequenting of divine service and publike pra
+
 #####Body#####
-The honour of Christian churches and the necessitie of frequenting of divine service and publike pra
+MATH. 21. Ver. 13.It is written, my house shalbe called the
+house of prayer, but you have made it a
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
